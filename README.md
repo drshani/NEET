@@ -1,1 +1,1 @@
-# dr.shani
+# Dr. Shani
